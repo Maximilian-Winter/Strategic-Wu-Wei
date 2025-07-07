@@ -257,19 +257,23 @@ When position-timing unity is fully realized, these five supreme capacities emer
 
 ---
 
-*Nothing that rises will not also fall.
-Nothing that falls will not also rise.*
+*Nothing that rises will not also fall.*
 
-*What rises is Fire, what descends is Water.
-That which seeks to rise but cannot is Wood.
-That which seeks to fall but cannot is Metal.
-That which neither rises nor falls but stabilizes both is Earth.*
+*Nothing that falls will not also rise.*
+
+*What rises is Fire, what descends is Water.*
+
+*That which seeks to rise but cannot is Wood.*
+
+*That which seeks to fall but cannot is Metal.*
+
+*That which neither rises nor falls but stabilizes both is Earth.*
 
 ---
 
-*"When people ask about the Dao, point them toward water.  
+*When people ask about the Dao, point them toward water.  
 When they ask about strategy, point them toward the stars.  
-When they ask about wu wei, become what you point toward."*
+When they ask about wu wei, become what you point toward.*
 
 ---
 
